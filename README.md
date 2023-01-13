@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Stormztron
-- 👀 I’m interested in electronics⚡, vogue fashion🕴, anime♥️
+- 👀 I’m interested in electronics⚡, vogue fashion🕴
 - 🌱 I’m currently learning coding👨‍💻, designing and more
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
